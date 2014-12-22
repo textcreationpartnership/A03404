@@ -33,7 +33,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THIS GALLANT Caualiero Dicke Bovvyer, Newly acted.LONDON Printed by Simon Stafford for Nathaniel But
+
 #####Body#####
 
 1. The Hiſtorie of the triall of Cheualry.
